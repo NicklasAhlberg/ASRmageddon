@@ -1,2 +1,2 @@
 # ASRmageddon
-More info is found over at https://rockenroll.tech
+More info is found over at https://www.rockenroll.tech/2023/01/15/asrmageddon-may-i-have-my-shortcuts-back-please/
